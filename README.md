@@ -3,7 +3,7 @@
 :flushed::flushed::flushed::flushed::flushed: <br />
 
 Загадки (каламбурные)<br />
-<br /><br />
+<br />
 1.<br />
 Когда даём мы – это дача<br />
 И там, где грядки – тоже…<br />
