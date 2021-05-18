@@ -2,7 +2,7 @@
 :smirk::smirk::smirk::smirk::smirk: <br />
 :flushed::flushed::flushed::flushed::flushed: <br />
 
-Загадки 357 (каламбурные)<br />
+Загадки (каламбурные)<br />
 <br /><br />
 1.<br />
 Когда даём мы – это дача<br />
@@ -41,5 +41,5 @@
 <br />
 10.<br />
 Я спросил у тёти Музы:<br />
-- Кто такие эти…<br />
+Кто такие эти…<br />
 
